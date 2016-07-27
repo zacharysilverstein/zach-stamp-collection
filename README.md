@@ -1,6 +1,6 @@
 Zach's Stamp Collection App
 ___
 
-# About is below
+# About Zach
 
-Stuff about Zach's Stamps here ...
+New York Times raves this is the best stamp collection of the ages!
