@@ -3,4 +3,4 @@ ___
 
 # About is below
 
-Stuff about Zach's Stamps here ...
+Zach has been collecting stamps since 1988. He has a wide variety of expensive and rare chinese stamps.
